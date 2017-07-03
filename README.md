@@ -32,4 +32,5 @@ https://docs.google.com/drawings/d/14q2r_-Kp-QhspTyz1fe9mRz_rDeRQ_yQuiF6jsAF0ZA/
 [ITEMS 8 AND 9]
 Mute or ban users who post inappropriate messages
 Join all chat rooms, including password protected ones
+https://docs.google.com/drawings/d/1VP4OHBOMluh7eBWTddWt7RttoaMmqXYgsrY_Bxzbglk/edit?usp=sharing
 
