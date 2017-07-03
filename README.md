@@ -6,7 +6,7 @@ Login page:
 https://docs.google.com/drawings/d/1cjALBwCXAe-GNasApPjevOqRf9ztzY7rxhLY-ajVs1o/edit?usp=sharing
 
 
-[ITEMS 2 AND 3]
+[ITEMS 2 AND 3] Иван Кирилов (Ivan12)
 Send messages anonymously under a nickname - https://docs.google.com/drawings/d/1lQ3WWe3tCoD6-nGAedelAx0-tYChavSUR86uPYc6pcg/edit?usp=sharing
 Join public chat rooms - https://docs.google.com/drawings/d/1FM9F1QGoHc9n0dw4dvrQNgHHRpucBWH0W6H723k0L2g/edit?usp=sharing
 
