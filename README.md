@@ -13,9 +13,9 @@ Join public chat rooms - https://docs.google.com/drawings/d/1FM9F1QGoHc9n0dw4dvr
 
 
 
-[ITEMS 4 AND 5]
-Customize their profile with a picture and other personal details
-Reserve a nickname
+[ITEMS 4 AND 5] Stanimir Penishev (luki_strike)
+Customize their profile with a picture and other personal details - https://docs.google.com/drawings/d/1iEAIn0veJnGqqc4s95Xr6xKyTWutCyVbwPfUISgBd_Y/edit?usp=sharing
+Reserve a nickname - https://docs.google.com/drawings/d/1S4QiEDyZkQf7gXz2kob6AjyCFzkURoodrIGuMiUMQWk/edit?usp=sharing
 
 
 
