@@ -13,9 +13,9 @@ Join public chat rooms - https://docs.google.com/drawings/d/1FM9F1QGoHc9n0dw4dvr
 
 
 
-[ITEMS 4 AND 5]
-Customize their profile with a picture and other personal details
-Reserve a nickname
+[ITEMS 4 AND 5] Станимир Пенишев (SoftUniID: luki_strike_88)
+Customize their profile with a picture and other personal details - https://docs.google.com/drawings/d/1iEAIn0veJnGqqc4s95Xr6xKyTWutCyVbwPfUISgBd_Y/edit?usp=sharing
+Reserve a nickname - https://docs.google.com/drawings/d/1S4QiEDyZkQf7gXz2kob6AjyCFzkURoodrIGuMiUMQWk/edit?usp=sharing
 
 
 
@@ -32,5 +32,4 @@ https://docs.google.com/drawings/d/14q2r_-Kp-QhspTyz1fe9mRz_rDeRQ_yQuiF6jsAF0ZA/
 [ITEMS 8 AND 9]
 Mute or ban users who post inappropriate messages
 Join all chat rooms, including password protected ones
-https://docs.google.com/drawings/d/1VP4OHBOMluh7eBWTddWt7RttoaMmqXYgsrY_Bxzbglk/edit?usp=sharing
 
